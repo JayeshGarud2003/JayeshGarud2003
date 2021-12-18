@@ -1,4 +1,4 @@
-## Hey 👋, I'm Rishav Anand!  
+## Hey 👋, I'm Jayesh Garud  
   
 
 <a href="https://github.com/rishavanand" target="_blank">
